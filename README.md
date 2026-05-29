@@ -34,7 +34,6 @@ June 2026 – Present
 **Northern University Bangladesh**  
 June 2021 – November 2025  
 
-**CGPA:** 3.669 / 4.0
 ---
 
 ## Experience
